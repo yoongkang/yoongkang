@@ -6,7 +6,6 @@ If you look at my projects you'll find a lot of them are in Python, but I really
 
 Here's how to reach me:
 
-- [Twitter](https://twitter.com/yoongielogy)
 - [LinkedIn](https://www.linkedin.com/in/yoong-kang-lim/)
 - [Personal website](https://yoongkang.com)
 
