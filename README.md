@@ -10,4 +10,4 @@ Here's how to reach me:
 - [LinkedIn](https://www.linkedin.com/in/yoong-kang-lim/)
 - [Personal website](https://yoongkang.com)
 
-I'm open for work opportunities. Please contact me via one of the methods above.
+I'm currently gainfully employed, but am always open to the right opportunity. Please contact me via one of the methods above.
